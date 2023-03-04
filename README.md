@@ -1,2 +1,2 @@
-# practicandoensoyhenry
-me gusta mucho programar
+geronimo carozzo
+me gusta programar y estoy viendo el curso de soy henri
